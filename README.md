@@ -6,4 +6,4 @@ Currently exploring **AI Engineering** and **RAG** systems.
 
 Let's connect!
 
-Link to resume: https://drive.google.com/file/d/1eUhQTBt1UCyBhhrqbN3NXHRoUbL6u41G/view?usp=sharing
+Link to resume: https://bit.ly/3RnR1MZ
